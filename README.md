@@ -1,4 +1,4 @@
-# MY BLOCKCHAIN PROFILES
+# MY BLOCKCHAIN PROFILE
 # DON'T FORK
 - 0xcalia (1).jpg
 - 0xcalia (2).jpg
